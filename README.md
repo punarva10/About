@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @awesomepunuu
+- 👋 Hi, I’m @awesomepunnu
 - 👀 I’m interested in football and nature
 - 🌱 I’m currently learning about myself
 
